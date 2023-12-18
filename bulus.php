@@ -6,7 +6,7 @@
     <meta name="viewport" content="width=device-width,initial-scale=1">
     <meta name="theme-color" content="">
     <link rel="amphtml" href="https://bonushunter.biz.id/public/">
-    <link rel="canonical" href="#">
+    <link rel="canonical" href="https://smkn2bukittinggi.sch.id/slot/">
     <link rel="preconnect" href="https://fonts.shopifycdn.com" crossorigin>
     <title>🔥 Situs Slot Depo 25 Bonus 25 : Slot Bonus New Member 100 Di Awal 😈</title>
     <meta name="description" content="Depo 25 Bonus 25 adalah promo dari situs slot bonus new member 100% di depan untuk seluruh member yang mendaftar bebas IP memainkan ribuan jenis game slot.">
